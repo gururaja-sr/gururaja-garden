@@ -3,4 +3,4 @@
 ---
 
 # Garden Home
-![garden-home](http://4.bp.blogspot.com/-yYwFjlTra_U/UeAWoM14HwI/AAAAAAAAGgQ/i2IWYlk9fuM/s1600/Beautiful+azalea+flowers+in+early+summer.jpg)
+![garden-home](https://thatoregonlife.com/wp-content/uploads/2020/04/Portland-Japanese-Garden-photo-by-Jim-Choate-via-Flickr-CC2-1024x805.jpg)
